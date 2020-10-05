@@ -1,0 +1,1 @@
+# 2020-mgt432-kryukova-ekaterina
